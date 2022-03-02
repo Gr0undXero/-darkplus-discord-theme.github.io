@@ -1,1 +1,1 @@
-# -darkplus-discord-theme.github.io
+Thank you for Viewing :)
